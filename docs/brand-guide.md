@@ -1,1 +1,1 @@
-Triangle brand: research-blue dominant, sky blue support, innovation green accent. Professional, smart, current, not generic SaaS.
+Triangle brand voice: calm, intelligent, specific, and research-aware. It should sound like a clear operator briefing, not hype, not generic agency copy. Research-blue dominant, sky blue support, innovation green accent. Professional, smart, current, not generic SaaS.
